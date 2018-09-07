@@ -1,3 +1,3 @@
 # On Wednesdays We Code
 
-Practice practice practice 
+Practice makes perfect!
